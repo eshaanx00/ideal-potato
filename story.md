@@ -1,0 +1,1 @@
+emily is a girl and she wants to go to school but in her dreams mommo haunts her to not to go to school.Get her to school
